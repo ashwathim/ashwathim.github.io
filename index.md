@@ -1,1 +1,1 @@
-Experimenting and exploring crosections between technology and literature
+Experimenting and exploring cross sections between technology and literature
